@@ -10,9 +10,6 @@
 
 ![image](https://user-images.githubusercontent.com/81099796/143767981-403b491b-aafc-44da-884d-937f71eb82eb.png)
 
-<br>
-
-![image](https://user-images.githubusercontent.com/81099796/143767984-f7a81907-0cc6-4380-9ad6-130b8eb97eb1.png)
 
 <br>
 
